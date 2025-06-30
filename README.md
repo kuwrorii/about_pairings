@@ -6,23 +6,23 @@
 <p align="center">
            <img width="500" src="https://github.com/user-attachments/assets/4e2173a2-81c0-498a-9e01-5b6ca543772f"
 </p>
+<p align="center"> FORSAKEN </p>
+<p align="center"> all pairings with Azure ! </p>
+<p align="center">
+           <img width="500" src="https://github.com/user-attachments/assets/4e2173a2-81c0-498a-9e01-5b6ca543772f"
+</p>
 <p align="center"> GENSHIN </p>
-<p align="center"> all pairings with Scara (no incest/nahida plzz) </p>
+<p align="center"> all pairings with Furina & Mizuki ! </p>
 <p align="center">
            <img width="500" src="https://github.com/user-attachments/assets/4e2173a2-81c0-498a-9e01-5b6ca543772f"
 </p>
-<p align="center"> PRESSURE </p>
-<p align="center"> all pairings with p.AI.nter (btw my fav is sebpainter (THEY IN MY EYES NOT A FAMILY STOP HARASSING ME)) </p>
-<p align="center">
-           <img width="500" src="https://github.com/user-attachments/assets/4e2173a2-81c0-498a-9e01-5b6ca543772f"
-</p>
-<p align="center"> MOUTHWASHING </p>
-<p align="center"> all pairings with anya :3 </p>
+<p align="center"> Honkai Star Rail </p>
+<p align="center"> all pairings with Castorice & The Herta ! </p>
 <p align="center">
            <img width="500" src="https://github.com/user-attachments/assets/4e2173a2-81c0-498a-9e01-5b6ca543772f"
 </p>
 <p align="center"> COLORFUL STAGE: PROJECT SEKAI </p>
-<p align="center"> mizuena & kanamafu ^^ </p>
+<p align="center"> all pairings with Mizuki & Kanade ! </p>
 
 <p align="center">
            <img width="100000" src="https://github.com/user-attachments/assets/5bd69f3c-5e75-4008-93ca-3b81dd221be0"
